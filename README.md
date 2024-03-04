@@ -5,4 +5,4 @@
 **Link: https://www.youtube.com/F8ap0o3CTGo**
 
 Youtube channel for Blockchain
-**1. Codeeater**
+**1. Code Eater**
